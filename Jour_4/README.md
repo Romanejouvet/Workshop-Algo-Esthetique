@@ -18,7 +18,7 @@ Lorsque la souris se déplace, une phrase est choisie aléatoirement dans la lis
 
 
 Fichers necessaires pour le lancement: 
-inrainbows.jpg →
+inrainbows.jpg 
 mask2.png 
 
 
