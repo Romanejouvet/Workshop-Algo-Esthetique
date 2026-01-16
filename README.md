@@ -1,0 +1,2 @@
+Pour cette semaine de workshop, le projet dont je suis le plus fiere serait je pense le jour 3 avec les fractales, car j'ai pu vraiment m'exprimer comme je voulais avec mon identité visuelle a 100%, et j'ai adoré réaliser ce projet. Mais je pense qu'au niveau de la logique et du code le projet du jour 2 est plus interessant avec les deux automates cellulaires. Enfin le projet du jour 4 est fou aussi, il vaut le detour ... Je pense que ca vaut vraiment le coup de regarder meme rapidement tous les projets car ils valent le coup c'est promis. 
+
